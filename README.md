@@ -1,3 +1,5 @@
+# Cờ Tướng Offline
+
 **Privacy Policy**
 
 This Privacy Policy describes the policies and procedures of Yen Bai Portal (“we,” “our,” or “us”) pertaining to the collection, use, and disclosure of your information on the "DVCLC".
